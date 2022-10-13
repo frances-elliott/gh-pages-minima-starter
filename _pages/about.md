@@ -4,6 +4,4 @@ layout: page
 title: About me
 ---
 
-More details about me on this page with links to my social media profiles and so on.
-
-![](https://www.jorgesanz.net/assets/imgs/me/jsanz_small4.png)
+Sometimes I do something that makes me crow: "there's few so clever as me!" This blog is for holding those moments.

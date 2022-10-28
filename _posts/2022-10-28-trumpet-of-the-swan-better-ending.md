@@ -17,4 +17,4 @@ Here's my rewrite of the whole "extract Serena in return for cygnets" plot point
 
 You're welcome! 
 
-PS -- EB White's talking animal universe is so weird in inconstient on reread. Like, swans care about money and possessions and know the names of human cities, on the one hand, but are also free and wild and don't care about most human concerns? And yet, for the most part, it works. 
+PS -- EB White's talking animal universe is so weird in inconstient on reread. Like, swans care about money and possessions and know the names of human cities, on the one hand, but are also free and wild and don't care about most human concerns? And yet, for the most part, it works. Also I would *really* like to know what real-life person the cobb is based on. It's like EB White took all the writing rules of *Strunk and White* and gleefully violated them in one place, with great affection toward whomever he's spoofing. 

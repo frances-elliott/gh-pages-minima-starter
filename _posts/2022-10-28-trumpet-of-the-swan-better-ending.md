@@ -5,7 +5,9 @@ date:   2022-08-29 00:00:00 -0000
 categories: books
 ---
 
-Re-reading EB White's *Trumpet of the Swan* with my 6-year-old, I realized I hate the patriarchal  honor code plot points. Like, Louis agrees to donate his future disabled cygnets to the zoo (a fate he, as a disabled swan himself, desperately wants to avoid) in return for freeing his future wife Serena, without consulting Serena, out of some weird sense of honor? UGH! 
+Re-reading EB White’s Trumpet of the Swan with my 6-year-old, I realized I hate the patriarchal honor code plot points.  So I had to outline a rewrite! 
+
+So my problem is that Louis agrees to donate his future disabled cygnets to the zoo (a fate he, as a disabled swan himself, desperately wants to avoid) in return for freeing his future wife Serena, without consulting Serena, out of some weird sense of honor? UGH!
 
 Here's my rewrite of the whole "extract Serena in return for cygnets" plot point, written with today's litigious society in mind (I'll take litigation over honor codes, honestly): 
 
